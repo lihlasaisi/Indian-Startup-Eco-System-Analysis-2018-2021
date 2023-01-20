@@ -37,4 +37,4 @@ My recommendation to the team would be that Fintech startups received is where t
 Thank you.
 
 
-Link to article on Medium: https://medium.com/@lihla.saisi/indian-startup-eco-system-analysis-2018-2021-da13ad670108
+Link to article on Medium: 
